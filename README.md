@@ -1,0 +1,1 @@
+# tugas_6_prakalpro-71231048_Jona-Ruben-Manalu-
